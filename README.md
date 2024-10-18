@@ -6,6 +6,7 @@
 - Discord: Sakyux
 - Twitter: sakyux75017
 - Itch.io: https://sakyux.itch.io/
+
 Yea, that's pretty much it. I don't have much else lol.
 
 💞 I wish to create video games that inspire people~
